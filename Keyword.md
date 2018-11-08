@@ -15,3 +15,5 @@ sustainable animal protein
 biomass
 
 palatable
+
+frass
