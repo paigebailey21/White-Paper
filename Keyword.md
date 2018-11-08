@@ -4,11 +4,7 @@ https://books.google.com/books?hl=en&lr=&id=boeZDgAAQBAJ&oi=fnd&pg=PA263&dq=rela
 ## List
 Entomophagy
 
-protein
-
 consumer acceptance
-
-greenhouse gas
 
 sustainable animal protein
 
@@ -17,3 +13,5 @@ biomass
 palatable
 
 frass
+
+dry matter
