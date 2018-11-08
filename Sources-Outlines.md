@@ -8,4 +8,6 @@ https://www.reuters.com/article/us-usa-protein-bugs-insight/insect-farms-gear-up
 
 https://www.tiny-farms.com/
 
+https://books.google.com/books?id=ZZXBCQAAQBAJ&printsec=frontcover&dq=Edible+Insects:+A+Neglected+and+Promising+Food+Source&hl=en&sa=X&ved=0ahUKEwiXs_T-rsXeAhVM54MKHVmCA7sQ6AEIKDAA#v=onepage&q&f=false
+
 ## Outline
