@@ -14,6 +14,9 @@ https://books.google.com/books?id=ZZXBCQAAQBAJ&printsec=frontcover&dq=Edible+Ins
 
 
 ### As Animal Feed
+
+https://www.tiny-farms.com/
+
 https://www.researchgate.net/publication/313824560_Insect_Meal_as_a_Source_of_Protein_in_Animal_Diet 
 
 https://businesswales.gov.wales/farmingconnect/posts/potential-sources-protein-animal-feed-insects
