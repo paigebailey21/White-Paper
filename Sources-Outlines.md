@@ -10,4 +10,7 @@ https://www.tiny-farms.com/
 
 https://books.google.com/books?id=ZZXBCQAAQBAJ&printsec=frontcover&dq=Edible+Insects:+A+Neglected+and+Promising+Food+Source&hl=en&sa=X&ved=0ahUKEwiXs_T-rsXeAhVM54MKHVmCA7sQ6AEIKDAA#v=onepage&q&f=false
 
-## Outline
+
+
+
+https://www.researchgate.net/publication/313824560_Insect_Meal_as_a_Source_of_Protein_in_Animal_Diet 
