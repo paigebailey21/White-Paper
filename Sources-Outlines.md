@@ -26,3 +26,8 @@ https://www.csmonitor.com/Environment/2018/0413/Insect-farms-emerge-as-an-altern
 https://www.sciencemag.org/news/2015/10/feature-why-insects-could-be-ideal-animal-feed
 
 http://www.proteinsect.eu/
+
+https://agfundernews.com/opportunities-challenges-insect-farming-feed.html/
+
+https://agfundernews.com/funding-insect-startups-slow-start-despite-demand.html/
+
