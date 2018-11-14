@@ -32,4 +32,5 @@ https://agfundernews.com/opportunities-challenges-insect-farming-feed.html/
 https://agfundernews.com/funding-insect-startups-slow-start-despite-demand.html/
 
 http://www.ediblebugfarm.com/blog/edible-insects-nutritional-content/
-    https://www.google.com/search?q=nutritional+value+of+insects&rlz=1C1GCEV_enUS823US823&source=lnms&tbm=isch&sa=X&ved=0ahUKEwjV4tem-dLeAhXCq4MKHV3KD5IQ_AUIEygB&biw=1920&bih=969#imgrc=J0ed2aqP_mvveM:
+   
+   https://www.google.com/search?q=nutritional+value+of+insects&rlz=1C1GCEV_enUS823US823&source=lnms&tbm=isch&sa=X&ved=0ahUKEwjV4tem-dLeAhXCq4MKHV3KD5IQ_AUIEygB&biw=1920&bih=969#imgrc=J0ed2aqP_mvveM:
