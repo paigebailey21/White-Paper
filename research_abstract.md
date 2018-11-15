@@ -18,3 +18,5 @@ https://agfundernews.com/opportunities-challenges-insect-farming-feed.html/
 https://agfundernews.com/funding-insect-startups-slow-start-despite-demand.html/
 
 http://www.ediblebugfarm.com/blog/edible-insects-nutritional-content/
+
+https://www.reuters.com/article/us-usa-protein-bugs-insight/insect-farms-gear-up-to-feed-soaring-global-protein-demand-idUSKBN1HK1GC
