@@ -1,4 +1,4 @@
-I will be researching how insects could be a source of protein for aminal feed. The insect meal could replace soybean and corn meal, allowing those products to be used for human consumption instead. There is quite a bit of research if this area. I have found a few companies that have already began to sell insects for food. Some sources cover the nutritional value of various insects. Other sources cover the regulations and current concerns regarding insects as a new source of protein. 
+I will be researching how insects could be a source of protein for aminal feed and what is being done to reach this goal. A few insect farms that can be found here in the United States, but there is more intense research being conducted in other countries. The insect meal could replace soybean and corn meal, allowing those products to be used for human consumption instead. I have found a few companies that have already began to sell insects for food. Some sources cover the nutritional value of various insects. While, other sources cover the regulations and current concerns regarding insects as a new source of protein. 
 
 
 https://www.tiny-farms.com/
