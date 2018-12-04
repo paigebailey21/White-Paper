@@ -1,0 +1,3 @@
+Writing Habits/ improve?
+
+I usually work on my papers at night, in my room. Most of the time I start the paper the weekend before it is due. I write as much as I possibly can the first night. Then I will finish it the next time I look at it. Then depending on how I feel about the paper I will revist it once or twice more. My grammer is usually terrible, so I either put in into ginger grammer or have someone review it. I usually end up checking it late at night, so I end up using the software instead of waking anyone up. One way I can imporve is start my paper a little earlier in the week and try working on it a few mornings as well. My strenght would be that I do look at it multiple times, before submitting it. 
